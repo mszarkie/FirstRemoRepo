@@ -1,1 +1,1 @@
-# FirstRemoRepo
+# Pargon z wazywniaka
